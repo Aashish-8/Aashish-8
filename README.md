@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Python**
 
-- 📫 How to reach me **aashishbhabal18@gmail.com**
+- 📫 How to reach me **aashishxcode@gmail.com**
 
 - ⚡ Fun fact **I am an orthodox Boxer**
 
